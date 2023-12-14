@@ -1,4 +1,4 @@
-# Hi, I'm Nathan Lima (N47h4nL1m4)
+# Hi, I'm Nathan Lima (N44ru)
 
 ### ~$ Whoami
 
